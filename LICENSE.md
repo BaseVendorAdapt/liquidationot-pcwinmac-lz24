@@ -1,4 +1,4 @@
-# 
+# Profesional liquidation sniper bot flujo de trabajo para Mac OS | Personalizado liquidation sniper bot flujo de trabajo para PC Windows. Con ejecución de órdenes de mercado y gestión de riesgos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
